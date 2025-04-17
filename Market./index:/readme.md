@@ -1,1 +1,3 @@
 - [Aluminum 200A MIG Welder, 110V/220V MIG/Flux Core MIG/Lift TIG/Stick/Spot Welding/Spool Gun Compatible 6-In-1 Welding](https://www.aliexpress.us/item/3256808611851563.html)
+- [ARCCAPTAIN MIG Welder 3 IN 1 110V 130A Flux Core Gasless MIG Lift TIG MMA Stick IGBT Synergic Control For Home Welding Machine](https://www.aliexpress.us/item/3256808225491893.html)
+- [3 in 1 MIG Welder Semi-Automatic Welding Machine 110V Synergy Tool IGBT Inverter Non Gas MIG/TIG/MMA Iron Soldering For Home](https://www.aliexpress.us/item/3256808223006955.html)
